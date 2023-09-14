@@ -129,7 +129,7 @@ Check out supost.com, the VSR group and facebook marketplace. A typical range is
 Palo Alto Bicycles: it was $40 to change a tire and brakes. Cheapest option remains to do it yourself while buying what’s needed on Amazon. 
 ## Miscellaneous
 ### June 5th to July 4th are noisy in East Palo Alto
-There are a couple of houses in EPA that enjoy fireworks. And when I say enjoy, I mean explosions all the f***ing time in June, at least in EPA. That’s something to consider if you planned on writing your thesis by then.
+There are a couple of houses in EPA that enjoy fireworks. And when I say enjoy, I mean explosions all the time in June, at least in EPA. That’s something to consider if you planned on writing your thesis by then.
 
 ### Weed is legal in California
 You can buy edibles next to the Patio for ex: [here](https://www.google.com/maps/place/Mac's+Smoke+Shop+Inc/@37.444828,-122.1634953,19.38z/data=!4m9!1m2!2m1!1sthe+patio!3m5!1s0x808fbb3a1c256f1d:0x7c4b2b2f8b480369!8m2!3d37.4441776!4d-122.1622516!16s%2Fg%2F1tg68bjw?entry=ttu)https://www.google.com/maps/place/Mac's+Smoke+Shop+Inc/@37.444828,-122.1634953,19.38z/data=!4m9!1m2!2m1!1sthe+patio!3m5!1s0x808fbb3a1c256f1d:0x7c4b2b2f8b480369!8m2!3d37.4441776!4d-122.1622516!16s%2Fg%2F1tg68bjw?entry=ttu)
