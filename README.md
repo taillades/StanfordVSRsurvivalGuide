@@ -77,6 +77,12 @@ Cardinal Care is expensive and can be waived. The procedure for this was changed
 
 For waiving, you need your SUNet ID and email address, i.e. access to Axess. This means you can only waive Cardinal Care after your first day at work retrospectively (I had access to Axess before starting though). You have 30 (double-check pls?) days time to waive. If your first waiver is denied you have multiple attempts until the deadline. 
 
+## Phone number
+Your best deal might be to keep your European phone number.
+However, for some usages such as renting a house on Zillow or taking a car insurrance, a US phone number can be useful. 
+Mint is $15/m for all illimited: http://fbuy.me/uHNRF (I get some $$$ if uou use that link). Every 3 months just reapply for a new discovery plan. 
+
+
 ## Driver’s license
 ### Can I keep my driver’s license from Europe?
 Yes.
