@@ -124,6 +124,15 @@ Check out SUpost.com, ads in the VSR group, and facebook marketplace. Always hav
 Ali’s auto care:
 https://maps.google.com?q=Ali's%20Auto%20Care,%202211%20Monroe%20St,%20Santa%20Clara,%20CA%2095050,%20United%20States&ftid=0x808fca3bc7d60be7:0x7ca195e245019dc0&hl=en-US&gl=us&entry=gps&lucs=,47071704&g_st=ic
 Great guy, prices are good for a garage. Some things are difficult to fix like problems with the engines but many things are easy to do on your own like oil change or brake change just look your model up on YouTube and buy the parts on Amazon.
+
+### Car insurance
+I use StateFarm, Taylor is great: taylor.childers.ecd2@statefarm.com. I heard good things about Geico, but it's an all-automated process, you don't get to talk to a human. And you need an US phone number. And it's not even cheaper. 
+We tried AAA and frankly it was a huge pain. We had to talk over the phone to some undermotivated employee, that followed a bunch of arbitrary rules. For example, adding someone else on the car wasn't possible, or getting insurred for the maximum amount (shut up and take my money!). 
+
+Regarding the contract: check the categories to know what you get insurred for. If you go to SF often, it might be worth paying for damages on the car since many windows get broken. 
+The damage to another vehicle is super expensive, I didn't pay for it. Take the maximum on health damages insurrance since costs for health here can easily reach hundreds of thousands of dollars (plus the indemnification). 
+
+
 ## Groceries
 Trader Joe’s: good wine there, overall I like the quality of the products. Human-scaled. You can find original stuff.
 Walmart: huge supermarket, cheap, with many items being locked to avoid being stolen
