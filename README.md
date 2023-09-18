@@ -111,6 +111,9 @@ Monroe: very European, cheap drinks if you come early. Be there before 8:30 pm o
 [Generative AI Events [by cerebralvalley.ai]](https://docs.google.com/spreadsheets/d/1P6ut7vL-gXKbeDeh3nuPqBjoCupjIt87Sw7TnhumBSU/edit#gid=1799694959)
 https://cerebralvalley.ai/
 
+### Graduate events at Stanford 
+https://glo.stanford.edu/ngso/ngso-overview-0#Schedule
+
 ## Surfing
 The two surfing spots near Stanford are [Pleasure Point](https://www.google.com/maps/place/pleasure+point/data=!4m2!3m1!1s0x808e15163516a7b7:0x8c550e2a2643e29f?sa=X&ved=2ahUKEwixwZOU8aeBAxUVPkQIHTyJAWAQ8gF6BAgREAA&ved=2ahUKEwixwZOU8aeBAxUVPkQIHTyJAWAQ8gF6BAgTEAE) and [Pacifica](https://www.google.com/maps/place/Pacifica,+CA/@37.6164937,-122.5203353,13z/data=!3m1!4b1!4m6!3m5!1s0x808f772fd14a9679:0x44b02f7f17a1c438!8m2!3d37.6327914!4d-122.4900652!16zL20vMHI1dzI?entry=ttu). For both you have shops nearby to rent a suit and a surfing board ($40 altogether, cheaper if you have your own suit). 
 ## Cars
