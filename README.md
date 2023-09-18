@@ -114,6 +114,7 @@ https://cerebralvalley.ai/
 ### Events at Stanford 
 https://glo.stanford.edu/ngso/ngso-overview-0#Schedule
 https://bechtel.stanford.edu/engage-our-center/programs-events/event-calendar/events-center
+https://live.stanford.edu/calendar/all/all/all/all/all
 
 ### Survival guide for Stanford undergrads
 https://drive.google.com/file/d/1GJQubCiIgAZwzgJnpHb55qo-D6p74vv7/view
