@@ -106,7 +106,8 @@ The French House: obviously the best place to party in south bay ;) It’s my sh
 ## Fun in SF
 Clubs
 Monroe: very European, cheap drinks if you come early. Be there before 8:30 pm or expect a long queue. 
-## Networking & Hackathons
+
+## Events
 ### Generative AI events
 [Generative AI Events [by cerebralvalley.ai]](https://docs.google.com/spreadsheets/d/1P6ut7vL-gXKbeDeh3nuPqBjoCupjIt87Sw7TnhumBSU/edit#gid=1799694959)
 https://cerebralvalley.ai/
